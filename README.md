@@ -22,4 +22,6 @@ IN comming summer, I had the opportunity to visit [Switzerland](https://upload.w
  U.S.A , England  *Very interested country*. China, Switzerlend,
 > Journalism can never be silent: that is its greatest virtue and its greatest fault.
 
-Thank you for visiting my blog! I hope you enjoyed. 
+Thank you for visiting my blog! I hope you enjoyed.
+
+![alt](https://img.freepik.com/free-photo/flag-pakistan_1401-192.jpg?w=2000)
